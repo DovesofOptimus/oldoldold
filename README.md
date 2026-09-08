@@ -38,7 +38,12 @@
 
  ${\textsf{\color{#BD9FCB}♡}}$ > <a href=https://github.com/title-town>title</a> <a href=https://github.com/pt-stars>stars</a> <a href=https://github.com/pt-walk-of-fame>fame</a> <a href=https://github.com/pt-of-awesomeness>awesomeness</a> <a href=https://github.com/pt-fashion>fashion</a> <a href=https://github.com/pt-hall-of-media>media</a> <a href=https://github.com/pt-contributers>contributers</a> <a href=https://github.com/fans-town>fans</a> <a href=https://github.com/ponytownyumeshippers>yumeshippers</a> <a href=https://github.com/pt-nominations>nominations</a> <a href=https://github.com/pt-medals>medals</a> <a href=https://github.com/ponychievements>achievements</a> <a href=https://github.com/pt-loveforfictional>loveforfictional</a> <a href=https://github.com/ponytowncosplayers>cosplayers</a> <a href=https://github.com/ponytown-yumes>yumes</a> <a href=https://github.com/ship-town>ships</a> <a href=https://github.com/FOLKTOWN>folktown</a> <a href=https://github.com/pt-medals2>medals2</a> <a href=https://github.com/kaotown>kaotown</a> <a href=https://github.com/PT-FANtastic-Hall>fantastic</a> 
 
-<img width="600" height="600" alt="orion pax graphic" src="https://github.com/user-attachments/assets/2e43e1f5-c877-4571-b756-a8e351b334b0" />
+ </details>
+
+<p align="left">
+<img width="500" height="500" alt="orion pax graphic" src="https://github.com/user-attachments/assets/2e43e1f5-c877-4571-b756-a8e351b334b0" /> 
+${\textsf{\color{#aa81c7}♡}}$
+ 
 
 
 
