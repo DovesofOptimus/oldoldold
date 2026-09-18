@@ -42,10 +42,19 @@
 
  </details>
 
-<p align="left">
-<img width="200" height="200" alt="orion pax graphic" src="https://github.com/user-attachments/assets/2e43e1f5-c877-4571-b756-a8e351b334b0" /> <img width="100" height="100" alt="1000001746" src="https://github.com/user-attachments/assets/ad514afe-ac8c-400b-b4bb-fa1aa84b7daf" />
- 
- 
+<p align="center">
+<img width="500" height="500" alt="orion pax graphic" src="https://github.com/user-attachments/assets/2e43e1f5-c877-4571-b756-a8e351b334b0" /> 
+
+<table align="center"><th>
+<details><summary> <br>${\textsf{\color{#BD9FCB}𝚖𝐨𝚜𝐭 𝚞𝐬𝚎𝐝 𝚜𝐤𝚒𝐧𝚜 ♡}}$</summary>
+<br> <img width="184" height="236" alt="pony-town-💝&#39;ed by &#39;cee ♡ me, awfk-trot-blinking-padded-toy372-4x" src="https://github.com/user-attachments/assets/ec381d20-8631-47d8-831f-643ff526b91b" /> <img width="192" height="280" alt="pony-town-✧ 【Cyclonus】 ╭s&#39;ata- ︶ w2i◞-trot-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/2d06ada7-dfec-427a-a82e-8a31fe425ff0" /> <img width="188" height="280" alt="pony-town-zicron ,  tfoc  ♡ safk&#39;-trot-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/f64e7b67-1296-430b-815a-c20ee8d59c5d" /> <img width="196" height="268" alt="pony-town-Drift , afk @w2i-trot-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/99e398f8-7c6e-48e6-b820-334ecfe54d05" />
+
+
+
+
+
+
+
 
 
 
