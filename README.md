@@ -43,8 +43,8 @@
  </details>
 
 <p align="left">
-<img width="500" height="500" alt="orion pax graphic" src="https://github.com/user-attachments/assets/2e43e1f5-c877-4571-b756-a8e351b334b0" /> 
-${\textsf{\color{#aa81c7}♡}}$
+<img width="200" height="200" alt="orion pax graphic" src="https://github.com/user-attachments/assets/2e43e1f5-c877-4571-b756-a8e351b334b0" /> <img width="100" height="100" alt="1000001746" src="https://github.com/user-attachments/assets/ad514afe-ac8c-400b-b4bb-fa1aa84b7daf" />
+ 
  
 
 
