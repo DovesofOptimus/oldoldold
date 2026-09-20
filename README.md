@@ -1,0 +1,63 @@
+<div align="center"> 
+
+</details>
+
+<div align="center">
+
+<details>
+<summary> ${\textsf{\color{#ae8fbd}[︖ ] ωɦ𝖾𝗋𝖾 𝗒ⱺυ'ᥣᥣ 𝖿𝗂𐓣ᑯ ꭑ𝖾}}$ </summary>
+
+ ${\textsf{\color{#b7a9c9}always in swafe serv 1 | ifw not}}$ ${\textsf{\color{#b7a9c9}Im sometimes in Chinese n 18+ serwv wif frwens!}}$
+
+ ${\textsf{\color{#9c95ba}✦ 𝗌ρⱺ𝗍𝗌 . commownly in transformers spotw ♡ / but}}$ ${\textsf{\color{#9c95ba}alwso in dandys world spot, docks, anwd near}}$ ${\textsf{\color{#9c95ba}bakery >.<}}$
+
+ ${\textsf{\color{#8081ad}ꔫ ꭑⱺ𝗌𝗍 𝖼ⱺꭑꭑⱺ𐓣ᥣ𝗒 ω𝗂𝖿/𝖿ⱺυ𐓣ᑯ . . . wifh}}$ <a href=https://github.com/DaaeChristine>arcwee</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/L0st-Veiw>twailgate</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/TheLabyrinthOfLife>jeanne</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/P4RAN01A>megwatron ♡</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/AcxerSonnellino>ratwhet ♡</a>  ${\textsf{\color{#8081ad}and cookie!!}}$
+
+ </details>
+
+<p align="center">
+
+<p align="center">
+<img width="75" height="20" alt="buttons" src="https://github.com/user-attachments/assets/19f7c429-f475-4400-a2fd-325c21290068" />
+<img width="75" height="20" alt="soundwave-gigglingbat" src="https://github.com/user-attachments/assets/3d53f340-afd6-4480-855d-1b7fcbe7b9a6" />
+<img width="50" height="19" alt="pan-foxlorist" src="https://github.com/user-attachments/assets/a869c98f-8a07-495f-a7ff-1b367a99e3d2" />
+<img width="75" height="20" alt="shockwave-gigglingbat" src="https://github.com/user-attachments/assets/494abaf9-8ad8-4981-adb0-a94fe4b154d9" />
+<img width="75" height="20" alt="tumblr_90046f42c239ec88ae4b23ef5cb00989_54976894_75" src="https://github.com/user-attachments/assets/c6d88062-9264-4264-964b-8133067acff4" />
+
+
+<p align="center">
+<img width="736" height="414" alt="graphic" src="https://github.com/user-attachments/assets/e68386b1-45d4-48ac-b9f3-72be3c9e6490" />
+
+<p align="center">
+  $$\color{#BD9FCB} \text{₊˚⊹ ᰔ. 𝚝𝐲𝚜𝐦}$$ <a href=https://github.com/AcxerSonnellino/>𝚊𝐥𝚎𝐱</a> $$\color{#BD9FCB} \text{𝟺 𝐠𝚛𝐚𝚙𝐡𝚒𝐜 <𝟑 ︵ .ᐟ  ֹᨳଓ ՟}$$
+
+</details>
+
+<div align="center">
+
+<details>
+<summary> ${\textsf{\color{#ae8fbd}𝗍і𝗍ᥣᥱs}}$ </summary>
+
+ ${\textsf{\color{#BD9FCB}♡}}$ > <a href=https://github.com/title-town>title</a> <a href=https://github.com/pt-stars>stars</a> <a href=https://github.com/pt-walk-of-fame>fame</a> <a href=https://github.com/pt-of-awesomeness>awesomeness</a> <a href=https://github.com/pt-fashion>fashion</a> <a href=https://github.com/pt-hall-of-media>media</a> <a href=https://github.com/pt-contributers>contributers</a> <a href=https://github.com/fans-town>fans</a> <a href=https://github.com/ponytownyumeshippers>yumeshippers</a> <a href=https://github.com/pt-nominations>nominations</a> <a href=https://github.com/pt-medals>medals</a> <a href=https://github.com/ponychievements>achievements</a> <a href=https://github.com/pt-loveforfictional>loveforfictional</a> <a href=https://github.com/ponytowncosplayers>cosplayers</a> <a href=https://github.com/ponytown-yumes>yumes</a> <a href=https://github.com/ship-town>ships</a> <a href=https://github.com/FOLKTOWN>folktown</a> <a href=https://github.com/pt-medals2>medals2</a> <a href=https://github.com/kaotown>kaotown</a> <a href=https://github.com/PT-FANtastic-Hall>fantastic</a> 
+
+ </details>
+
+<p align="center">
+<img width="500" height="500" alt="orion pax graphic" src="https://github.com/user-attachments/assets/2e43e1f5-c877-4571-b756-a8e351b334b0" /> 
+
+<table align="center"><th>
+<details><summary> <br>${\textsf{\color{#BD9FCB}𝚖𝐨𝚜𝐭 𝚞𝐬𝚎𝐝 𝚜𝐤𝚒𝐧𝚜 ♡}}$</summary>
+<br> <img width="184" height="236" alt="pony-town-💝&#39;ed by &#39;cee ♡ me, awfk-trot-blinking-padded-toy372-4x" src="https://github.com/user-attachments/assets/ec381d20-8631-47d8-831f-643ff526b91b" /> <img width="192" height="280" alt="pony-town-✧ 【Cyclonus】 ╭s&#39;ata- ︶ w2i◞-trot-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/2d06ada7-dfec-427a-a82e-8a31fe425ff0" /> <img width="188" height="280" alt="pony-town-zicron ,  tfoc  ♡ safk&#39;-trot-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/f64e7b67-1296-430b-815a-c20ee8d59c5d" /> <img width="196" height="268" alt="pony-town-Drift , afk @w2i-trot-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/99e398f8-7c6e-48e6-b820-334ecfe54d05" />
+
+
+
+
+
+
+
+
+
+
+
+
+ 
